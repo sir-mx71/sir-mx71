@@ -1,5 +1,5 @@
 # 💫 About Me:
-🌱 I’m currently learning anything related to cybersecurity and web developer
+🌱 I’m currently learning anything related to TECHNOLOGY ⚙ 
 
 
 # 💻 Tech Stack:
